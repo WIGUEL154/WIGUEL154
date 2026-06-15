@@ -1,16 +1,17 @@
-## Hi there 👋
+## 😄 Olá meu nome é WIGUEL154
 
-<!--
-**WIGUEL154/WIGUEL154** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- ​📚 Sou estudante
 
-Here are some ideas to get you started:
+- 🌐 Gosto do mundo tecnológico
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-  ➕ Gosto de aprender novas coisas sobre matemática e tecnologia
+
+-   🎮​ Gosto de jogos e animes 🎎
+
+-   🎲​ Meu genero de jogo favorito é ação
+
+-   🇺🇸​ Tenho interesse em Ingles e Mandarim 🇨🇳
+
+-   🖋️​ Sou um amante de RPG
+
+-   
