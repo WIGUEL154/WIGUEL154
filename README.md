@@ -19,4 +19,5 @@
 -   🖥️​📂​ Tenho interesse em Engenharia Da Computação
 
 -   📠 Tenho interesse em passar no ITA
-  
+
+  ![](https://media.tenor.com/7menHcoxuT8AAAAC/rintaro-tsumugi-tsumugi-rintaro.gif)
