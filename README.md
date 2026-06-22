@@ -14,4 +14,9 @@
 
 -   🖋️​ Sou um amante de RPG
 
--   
+-   ⚽​ Gosto de futebol
+
+-   🖥️​📂​ Tenho interesse em Engenharia Da Computação
+
+-   📠 Tenho interesse em passar no ITA
+  
